@@ -1,0 +1,2 @@
+# naksinov
+SALOM MEN RUSLANBEK
